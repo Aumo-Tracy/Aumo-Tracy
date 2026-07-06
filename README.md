@@ -206,7 +206,7 @@ https://github.com/Aumo-Tracy
 
 ---
 
-⭐ Thanks for visiting my profile!## Hi there 👋
+⭐ Thanks for visiting my profile!
 
 
 <!--
